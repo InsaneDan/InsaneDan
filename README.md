@@ -4,8 +4,8 @@ For many years I was a critical care doctor in pediatric hospital. Sometimes it 
 So I've started to study Java since Nov 2020. And this turned my life around. I do want my hobby to turn into a career. So we'll see how it goes.
 
 ### My mottos:
-"The two most important days in your life are the day you are born and the day you find out why." – Mark Twain
-"Regardless of what you dream of - start working on it! And then real miracles will begin to happen in your life," - Johann Wolfgang von Goethe.
-"Whether you think you can, or you think you can't - you're right." - Henry Ford
+* "The two most important days in your life are the day you are born and the day you find out why." – Mark Twain
+* "Regardless of what you dream of - start working on it! And then real miracles will begin to happen in your life," – Johann Wolfgang von Goethe.
+* "Whether you think you can, or you think you can't - you're right." – Henry Ford
 
 How to reach me: isakov.danila.79@gmail.com
