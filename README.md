@@ -4,7 +4,7 @@ For many years I have been a critical care doctor in pediatric hospital. Sometim
 
 ### My mottos:
 * "Whether you think you can, or you think you can't - you're right." – Henry Ford
-* * "The two most important days in your life are the day you are born and the day you find out why." – Mark Twain
+* "The two most important days in your life are the day you are born and the day you find out why." – Mark Twain
 * "Regardless of what you dream of - start working on it! And then real miracles will begin to happen in your life," – Johann Wolfgang von Goethe.
 
 How to reach me: isakov.danila.79@gmail.com
