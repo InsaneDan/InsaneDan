@@ -8,4 +8,4 @@ For many years I have been a critical care doctor in pediatric hospital. Sometim
 * "Regardless of what you dream of - start working on it! And then real miracles will begin to happen in your life," – Johann Wolfgang von Goethe.
 
 How to reach me: isakov.danila.79@gmail.com  
-Telegram: @IsakovDaniel
+Telegram: [@IsakovDaniel](https://t.me/IsakovDaniel)
